@@ -1,1 +1,3 @@
-- ⭐ haiiii im mugi !!! friends can call me tomi <3
+- ⭐ idgaf if u copy my skins or claim my skins as urs 
+- ⭐ i troll frequently (this means i bother those who have TT/TD, just hide me if it bothers u lol)
+- ⭐ i like to start drama , bothers u? hide me 

@@ -1,3 +1,3 @@
 - ⭐ idgaf if u copy my skins or claim my skins as urs 
 - ⭐ i troll frequently (this means i bother those who have TT/TD, just hide me if it bothers u lol)
-- ⭐ i like to start drama , bothers u? hide me 
+- ⭐ i hate tonetags used on me and will make fun of you for using them with me 

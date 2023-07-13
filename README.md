@@ -1,2 +1,1 @@
-# cool-stuff
-cool stuff idk
+![dxlros-07274b14-f166-41e2-ada1-004e75c075b2](https://github.com/gatozuko/cool-stuff/assets/112355461/c9755d23-f412-4842-8ea4-67dda1fed778) ![dbclb6g-3eb9f327-8446-4a7f-b324-e086192cd480](https://github.com/gatozuko/cool-stuff/assets/112355461/4e0645d3-0f6d-484b-8046-362678e3d75a) ![daj5fuq-1a524e11-f12f-4daa-8130-1a6f350820c0](https://github.com/gatozuko/cool-stuff/assets/112355461/dcb7c7af-d028-4b33-bf8b-d0ae6b79680e) ![daj5f7g-ece91b02-a7cc-47ee-8c79-bf88ed1b3e62](https://github.com/gatozuko/cool-stuff/assets/112355461/f69aa134-8264-46e4-a582-10b9faa4ab25)

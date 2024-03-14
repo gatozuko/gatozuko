@@ -7,6 +7,8 @@
 ![tumblr_7be71dd250acc6768fa6b4b35628a600_dd4579b7_100](https://github.com/gatozuko/gatozuko/assets/112355461/d1305661-0e03-4cd1-b61a-fe3bf0c2ec43)![tumblr_4bc95727de4b8be174a92257d56ad94b_9c9ef5ae_100](https://github.com/gatozuko/gatozuko/assets/112355461/1508afd8-05d1-4883-ba29-87b24275d2a7)
 ![tumblr_33c455158e1451699b9ebe6affbde2a7_1d90de13_100](https://github.com/gatozuko/gatozuko/assets/112355461/9a2a8a77-8c44-47b5-9175-3145f7e2d6ff)
 <br/> ![tumblr_5303afce0c9e63803aff9b5197ad688f_69dec0e7_100](https://github.com/gatozuko/gatozuko/assets/112355461/19c6a10c-b61d-431e-83b9-92294eab763f)![db66vz7-f4f281e7-a267-4a3b-9835-c086e1d67961](https://github.com/gatozuko/gatozuko/assets/112355461/6b6ba9be-ae31-4c2a-9670-9cc627746d84)![db66txc-fa2b0013-7120-476b-8254-7dfefb87c5eb](https://github.com/gatozuko/gatozuko/assets/112355461/b149ffea-59ce-4c6e-a527-10f6685ee331)![db66u8f-712dcbc2-f3ab-4397-91fa-6502f271899b](https://github.com/gatozuko/gatozuko/assets/112355461/48797853-8e43-4f15-84a0-d3ab66f57ce0)
+![aroace okk](https://github.com/gatozuko/gatozuko/assets/112355461/041968b4-5759-4a73-98ec-df622acc07f1)
+<br/> ![URUGUAYYY](https://github.com/gatozuko/gatozuko/assets/112355461/0aa559e4-1d33-4e38-b92f-a0b8273d5cf3) ![d2smymb-964a7720-6103-4134-90e3-e682e6a1964f](https://github.com/gatozuko/gatozuko/assets/112355461/78c7435c-c346-41db-b59c-2de93fc008a3) ![YURAI](https://github.com/gatozuko/gatozuko/assets/112355461/2d86c077-5565-4259-bce1-bda2e81fe0ef)
 
-
+![ca57092a89870c06fa1ef1d68bf9d85c](https://github.com/gatozuko/gatozuko/assets/112355461/dc37607e-3ddf-4378-bc57-362ed1d95fa7)
 
